@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning and studing computer engineering.
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me msg me on insta id is anshlaaaaa
-- 😄 Pronouns: @deadatatime
+- 😄 Pronounce: he/him
 - ⚡ Fun fact: friendly with friendly person
 
 <!---
